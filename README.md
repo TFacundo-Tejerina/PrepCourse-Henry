@@ -1,2 +1,2 @@
 # PrepCourse-Henry
-Este repositorio lo utilizo para el prepcourse henry
+Buenaassssss, este es mi primer repositorio de github, no me critiquen.
